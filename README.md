@@ -1,1 +1,0 @@
-# kazukinishikawa.github.io
